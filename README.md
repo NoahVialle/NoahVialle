@@ -1,0 +1,8 @@
+- 👋 Hi, I'm @NoahVialle, some people know me as @darckus483, I'm from France and I'm learning web development.
+- 👀 I'm interested in app development, video games, mods and websites.
+- 🌱 I'm learning UE5 and improving my skills with blender. 
+- 💞️ I'm looking to collaborate on my main project project_unlimited but I'm always open to help if I can help. 
+- 📫 How to reach me you can try linkdin but you're more likely to have your message end up in oblivion,
+- so send me an email : main email but not my professional one email noah90v@gmail.com 
+- professional email noah.vialle@proton.me
+- or on the main discord server of the unlimited project.
